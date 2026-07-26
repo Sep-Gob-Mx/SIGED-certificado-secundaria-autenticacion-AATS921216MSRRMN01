@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AATS921216MSRRMN01
+AATS921216MSRRMN01
